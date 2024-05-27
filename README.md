@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any data jobs.
 - 📫 How to reach me e-mail: welissoncarvalho93@gmail.com, phone or whatsapp: +55 31971590580
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I'm addicted to Monster Energy Drink. MANGO LOCO specifically!
+- ⚡ Fun fact: I'm addicted to Monster Energy Drink !!
 
 <!---
 Welissonc13/Welissonc13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
